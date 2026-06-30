@@ -100,6 +100,7 @@ Employee attrition negatively impacts productivity, increases hiring costs, and 
 
 **Nitish Kumar**
 gmail- nitishcse4@gmail.com 
+
 LinkedIn - https://www.linkedin.com/in/nitish-kumar-69b32b232
 
 Week 2 Internship Project
